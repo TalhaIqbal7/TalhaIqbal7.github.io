@@ -1,1 +1,1 @@
-# TalhaIqbal7.github.io
+# talhaiqbal.github.io
